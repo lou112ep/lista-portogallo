@@ -1,4 +1,4 @@
-# Lista delle Cose da Portare per un Viaggio in Van in Portogallo
+# Lista cose da portare in viaggio
 
 ## Documenti e Denaro
 - **Passaporti** e **carte d'identità**
